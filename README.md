@@ -1,2 +1,5 @@
 # hello-world
-Just another repository
+
+Hi everyone!
+
+Mikael here, I like windsurfing, running an d most of all my Wife and my two boys.
