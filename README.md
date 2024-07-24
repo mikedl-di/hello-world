@@ -2,4 +2,4 @@
 
 Hi everyone!
 
-Mikael here, I like windsurfing, running an d most of all my Wife and my two boys.
+Mikael here, I like windsurfing, running and most of all my Wife and my two boys.
